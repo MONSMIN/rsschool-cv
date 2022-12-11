@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MONSMIN.github.io/rsschool-cv/cv
